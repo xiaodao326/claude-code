@@ -1,0 +1,1 @@
+© Anthropic PBC. 保留所有权利。使用受 Anthropic [商业服务条款](https://www.anthropic.com/legal/commercial-terms)约束。
